@@ -11,7 +11,7 @@ This is my Journal for Week 2. This week we were tasked to find a local historic
 
 "the study of an Indigenous burial ground requires an understanding of different ethical dimensions to archaeological practices" (Lacy, 58)
 	
-	This quote resonated with me because it demonstrates the ethical dimensions to doing archaeological work with burial grounds. To disregard the culture and practices of indigenous or other communities is an infringement on their rights as people, regardless if they are living or dead. I feel it is especially important to be sensitive to these ethical dimensions in the context of burial grounds/Cemeteries as the dead cannot speak for themselves. It becomes the responsibility of the community to ensure they are respected, and to provide guidence to archaeologists in understanding these ethical dimensions. 
+This quote resonated with me because it demonstrates the ethical dimensions to doing archaeological work with burial grounds. To disregard the culture and practices of indigenous or other communities is an infringement on their rights as people, regardless if they are living or dead. I feel it is especially important to be sensitive to these ethical dimensions in the context of burial grounds/Cemeteries as the dead cannot speak for themselves. It becomes the responsibility of the community to ensure they are respected, and to provide guidence to archaeologists in understanding these ethical dimensions. 
 
 ## Response to the Prompts
 
